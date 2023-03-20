@@ -1,4 +1,4 @@
-### Hi there ı`m Talha. 👋
+### Hi there I`m Talha. 👋
 
 
 - 🏫 I'm studying at Topkapı Schools İkitelli OSB Campus high school
